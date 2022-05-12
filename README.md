@@ -1,2 +1,2 @@
 # teks-fyi
-### My very first attempt to create a webpage with Github! 
+### Webpage for conceptualization for "teks" par Patrick Chabot Ph.D. sociologist and Julie Bernard Ma. philosopher.
