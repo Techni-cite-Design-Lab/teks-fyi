@@ -1,7 +1,7 @@
 
 # Teks
 
-##### v.1.0.0-Perpetual beta.∞ Symbolical Device <br><br><br><br><br>
+##### v.1.0.0-Perpetual beta.∞ Symbolic Device <br><br><br><br><br>
 
 ### Teks [tɛks] A worldbuilt worldbuilder *avenir*-generating know-how.
 
