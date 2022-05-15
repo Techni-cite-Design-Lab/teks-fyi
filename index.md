@@ -1,6 +1,6 @@
 ## **TEKS** n. A worldbuilt worldbuilder *avenir*-generating know-how.
 
-##### v.1.0.0-Perpetual Beta.∞ Symbolic Device <br><br>
+#### Teks theorization by Patrick Chabot Ph.D in collaboration with Julie Bernard M.A.
 
 
 
