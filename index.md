@@ -2,7 +2,7 @@
 
 #### Teks theorization by Patrick Chabot Ph.D in collaboration with Julie Bernard M.A.
 
-
+> #### ... coming soon ...
 
 ##### <br><br><br>See also our [WorldBuilt.AGI Project](http://www.worldbuilt.ai)
 
