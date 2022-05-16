@@ -1,6 +1,6 @@
 ## **TEKS** n. A worldbuilt worldbuilder *avenir*-generating know-how.
 
-#### Teks theorization by Patrick Chabot Ph.D in collaboration with Julie Bernard M.A.
+#### On the concept of Teks by Patrick Chabot Ph.D in collaboration with Julie Bernard M.A.
 
 > #### ... coming soon ...
 
