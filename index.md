@@ -1,4 +1,4 @@
-## **TEKS** n. The learning know-how to increase _avenir_* in the creative transformation of an agent and his world.
+### **TEKS** n. The learning know-how to increase _avenir_* in the creative transformation of an agent and his world.
 ##### * _Avenir_ is conceived here as "what disposes to exist”.
 
 ### <br><br>Fr | Le savoir-faire apprenant d’augmentation de l’avenir* dans la transformation créative d’un agent et son monde.
