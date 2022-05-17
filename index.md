@@ -4,7 +4,7 @@
 ### <br><br>Fr | Le savoir-faire apprenant d’augmentation de l’avenir* dans la transformation créative d’un agent et son monde.
 ##### * L'avenir est conçu ici comme "ce qui dispose à exister".
 
-#### <br><br>On the concept of Teks by Patrick Chabot Ph.D in collaboration with Julie Bernard M.A.
+#### <br><br>On the concept of Teks by Patrick Chabot Ph.D with Julie Bernard M.A.
 
 ##### <br><br><br>See also our [WorldBuilt.AGI Project](http://www.worldbuilt.ai)
 
